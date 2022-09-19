@@ -23,7 +23,12 @@ INGREDIENTS
 INSTRUCTIONS
  
 
-1. Chop the mushrooms into thin slices lengthways. chop the red pepper into small bite size pieces.   Chop the scallions at an angle into thin slices.   Grate the ginger or finely chop it and the garlic.   Chop the broccoli into florets and finely chop the stems, discarding any woody stalk pieces.   Finely slice the red chilli pepper.
+1. Chop the mushrooms into thin slices lengthways. 
+chop the red pepper into small bite size pieces.   
+Chop the scallions at an angle into thin slices.   
+Grate the ginger or finely chop it and the garlic.   
+Chop the broccoli into florets and finely chop the stems, discarding any woody stalk pieces.  
+Finely slice the red chilli pepper.
 
 2. Heat sesame oil in a large flat pan over high heat, when hot add the mushrooms and cook for 5 minutes until they start to reduce and brown slightly.   Add 1 tablespoon of tamari and stir to incorporate until it is all absorbed or evaporated (about 30 seconds).   Add the ginger, garlic, half the scallions, ½ of the chilli and red pepper and reduce the heat to medium and continue to cook for 5- 8 minutes, stirring occasionally until the peppers are cooked.Remove from the heat.
 
